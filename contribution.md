@@ -1,2 +1,2 @@
 Benedicte Kouame
-YEO Namogo
+YEO Namogo | PNLS | 19-09-2026
